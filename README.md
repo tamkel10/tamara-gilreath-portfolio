@@ -42,6 +42,7 @@ The Care Team – Intake Specialist (2022–2024)
 - Dallas College Foundation Scholarship Recipient
 - STEM League Gold Tier
 - Chancellor's Honor Roll
+- Dallas College Civic Engagement and Community Service Award
 
 #Contact
 https://www.linkedin.com/in/tamara-gilreath-42a09a353/
