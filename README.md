@@ -46,3 +46,11 @@ The Care Team – Intake Specialist (2022–2024)
 
 #Contact
 https://www.linkedin.com/in/tamara-gilreath-42a09a353/
+
+Cybersecurity Projects 
+
+Firewall Design Proposal Video
+https://youtu.be/Kun49neN0rs
+
+Cybersecurity Design Proposal for a Home Health Agency
+https://youtu.be/WMuf7HzYmls
