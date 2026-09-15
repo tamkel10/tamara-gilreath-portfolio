@@ -8,7 +8,8 @@ I have a degree in Cybersecurity from Dallas College. Currently I am a student a
 - University of North Texas - BAAS Administration and Organizational Supervision
 - Dallas College - AAS Cybersecurity Cyberdefense
   
-#Certifications
+#Certifications & Credentials
+- WISER Certification - WISER 2026 Industry Challenges Participant Certificate - WISER/Vanguard Quantum Computing Competition
 - CompTIA Tech+
   
 #Academic Credentials
